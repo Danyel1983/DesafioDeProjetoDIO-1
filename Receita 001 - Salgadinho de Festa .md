@@ -16,4 +16,9 @@
  4. Unte uma forma antes de pôr as bolinhas;
  5. Bata somente a gema do ovo em um copo e depois pincele as bolinhas;
  6. Pré-aqueça o forno por 10min em 200º e depois é só colocar no forno e aguardar uns 25min que estarão prontos.
+ 
+ ## Links - Outras Receitas
+ Bolinho de Chuva: https://www.tudogostoso.com.br/receita/184265-bolinho-de-chuva-salgado-de-queijo-parmesao-sem-ovo.html
+ 
+ 
 
