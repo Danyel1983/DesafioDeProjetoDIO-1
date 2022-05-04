@@ -19,6 +19,7 @@
  
  ## Links - Outras Receitas
  Bolinho de Chuva: https://www.tudogostoso.com.br/receita/184265-bolinho-de-chuva-salgado-de-queijo-parmesao-sem-ovo.html
+ Pastel Frito: https://comidinhasdochef.com/receita-de-pastel-frito/
  
  
 
